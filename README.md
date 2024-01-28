@@ -192,5 +192,5 @@ https://youtube.com/shorts/Rs5XBTqaasY?feature=share
 
 ## Author
 
-- **Author:** Moongi Choi
-- **Email:** u1316663@utah.edu
+- **Author:** Anonymous
+- **Email:** blocked
